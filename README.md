@@ -22,8 +22,8 @@ Rooted in **Deep Forest Green** and **Soft Sage**, our brand reflects a modern, 
 
 ## 🔗 Get in Touch
 Ready to find your next favorite piece or start a personal shopping request?
-* **💬 WhatsApp:** [Insert Link Here]
-* **📸 Instagram:** @[Insert Handle Here]
+* **💬 WhatsApp:** 09161238617
+* **📸 Instagram:** @[https://www.instagram.com/callidorasaccessories?igsh=aGNlNjRvN2RtZ251&utm_source=qr]
 * **📍 Based in:** Lagos, Nigeria
 
 ---
