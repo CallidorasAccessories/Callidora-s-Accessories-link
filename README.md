@@ -1,0 +1,1 @@
+We sell female Accessories ranging from necklaces, earrings, bangles, and bracelets. we also Do personal shopping of accessories for both Men and Women at large. W ith just a picture we can get you what you need. 
